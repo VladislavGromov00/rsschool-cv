@@ -5,6 +5,7 @@
 ## Contacts info:
 * E-mail: vgromov02@gmail.com
 * Discord: _vladislavgrom#6370
+* Telegram: @gromovvvvvvvvvvvvv
 
 ## About myself:
 
