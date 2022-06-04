@@ -41,4 +41,4 @@
 
 ## English
 
-    
+    Range of A1 to A2
